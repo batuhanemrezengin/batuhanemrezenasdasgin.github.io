@@ -1,2 +1,0 @@
-# batuhanemrezengin.github.io
-adasdasd
